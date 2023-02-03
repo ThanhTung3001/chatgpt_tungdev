@@ -1,5 +1,5 @@
 # chatgpt_tungdev
-gouflex40@gmail.com:deployiadell22
+gouflex40@gmail.com:deployiadell22 \n
 joseno2308@gmail.com:*josejose*
 tarchis03@gmail.com:adriamsfalconett
 m.smigielski2001@gmail.com:01290705037PorcupineTree
